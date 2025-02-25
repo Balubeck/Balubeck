@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Balubeck gege...
 - 👀 I’m interested in game cs2) dota2
-- 🌱 I’m currently learning nmhgdmuhykyufkmymkfkjfy
+- 🌱 I’m currently learning frdrttrfygui
 - 💞️ I’m looking to collaborate on ...hbjbhjoi;kml
 - 📫 How to reach me ...mjgdghumkum
 - 😄 Pronouns: ...))9eifk
