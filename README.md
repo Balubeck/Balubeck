@@ -2,7 +2,7 @@
 - 👀 I’m interested in game cs2) dota2
 - 🌱 I’m currently learning juyhdtfghntrh
 - 💞️ I’m looking to collaborate on ...vfiyvukj
-- 📫 How to reach me ...uhygefi
+- 📫 How to reach me ...rsefvgrg
 - 😄 Pronouns: ...))9eifk
 - ⚡ Fun fact: dota2 yooo
 htedfgtewa
